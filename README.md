@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **abhinavvrm543@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1Fukdwz7siJK9l_tJWD1tFVGs-iKH6kt2/view?usp=sharing](https://drive.google.com/file/d/1g-Ib4DBZv5FFLeqQE-NpDMF8Lt4yC4YZ/view?usp=sharing)]([https://drive.google.com/file/d/1Fukdwz7siJK9l_tJWD1tFVGs-iKH6kt2/view?usp=sharing](https://drive.google.com/file/d/1g-Ib4DBZv5FFLeqQE-NpDMF8Lt4yC4YZ/view?usp=sharing))
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1Fukdwz7siJK9l_tJWD1tFVGs-iKH6kt2/view?usp=sharing](https://drive.google.com/file/d/1g-Ib4DBZv5FFLeqQE-NpDMF8Lt4yC4YZ/view?usp=sharing)]([https://drive.google.com/file/d/1Fukdwz7siJK9l_tJWD1tFVGs-iKH6kt2/view?usp=sharing])(https://drive.google.com/file/d/1g-Ib4DBZv5FFLeqQE-NpDMF8Lt4yC4YZ/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
