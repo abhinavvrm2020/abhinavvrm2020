@@ -3,10 +3,6 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=abhinavvrm2020&label=Profile%20views&color=0e75b6&style=flat" alt="abhinavvrm2020" /> </p>
 
-- 🌱 I’m currently learning **MERN and Competitive Programming.**
-
-- 💬 Ask me about **Data Structures,C/C++,HTML,CSS,JavaScript,React,NodeJS,Databases.**
-
 - 📫 How to reach me **abhinavvrm543@gmail.com**
 
 - 📄 Know about my experiences [[https://drive.google.com/file/d/1emk-TOw46GVNXZ0EW8Xtp4iByIYjibtj/view?usp=sharing](https://drive.google.com/file/d/1emk-TOw46GVNXZ0EW8Xtp4iByIYjibtj/view?usp=sharing)]
